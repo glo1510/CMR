@@ -1,2 +1,3 @@
 # CMR
-This is situated in Medchal.
+THIS IS SITUATED IN MEDCHAL.
+THERE ARE SO MANY STUDENTS.
